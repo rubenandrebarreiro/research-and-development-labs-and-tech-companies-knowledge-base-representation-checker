@@ -1,1 +1,1 @@
-# tech-research-labs-and-companies
+# Research and Development Labs and Tech Companies
